@@ -19,4 +19,4 @@ gustavo.galegale@fiap.com.br
 
 ## Link do Vídeo no YouTube
 
-Vídeo: https://youtu.be/xT43yrwZ11E
+Vídeo: https://youtu.be/pck_Yp1VIPM
